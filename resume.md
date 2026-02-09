@@ -3,7 +3,7 @@ Date: 2/09/2026
 
 ##### Very Round Bird
 
-![Very Flattering Photo of an Often Spherical Bird](https://upload.wikimedia.org/wikipedia/commons/f/f4/%D0%92%D1%83%D1%81%D0%B0%D1%87_8066.jpg)
+![Very Flattering Photo of an Often Spherical Bird](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/%D0%92%D1%83%D1%81%D0%B0%D1%87_8066.jpg/250px-%D0%92%D1%83%D1%81%D0%B0%D1%87_8066.jpg)
 This is **REAL** bird photographed by **REAL** bird enthusiasts and presented to the world by a Ukrainian dude via [Wikimedia Commons](https://commons.wikimedia.org/wiki/File:%D0%92%D1%83%D1%81%D0%B0%D1%87_8066.jpg)
 This is also the most flattering photo of this bird. If you look it up you will find frankly rediculous photos of this bird. They are real and predate AI.      
 
