@@ -3,7 +3,7 @@ Date: 2/09/2026
 
 ##### Very Round Bird
 
-[![Very Flattering Photo of an Often Spherical Bird](https://macaulaylibrary.org/asset/205090471)](https://macaulaylibrary.org/asset/205090471)
+![Very Flattering Photo of an Often Spherical Bird](https://macaulaylibrary.org/asset/205090471)
 This is **REAL** bird photographed by **REAL** bird enthusiasts and presented to the world by the [IBC (Internet Bird Collection)](https://macaulaylibrary.org/asset/205090471)
 This is also the most flattering photo of this bird. If you look it up you will find frankly rediculous photos of this bird. They are real and predate AI.      
 
